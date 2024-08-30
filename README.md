@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Beta Priyoko as @artechspirit
 - 👀 I’m interested in Coding, Software, Hardware Development and Spiritual
-- 🌱 I’m currently learning Everything
+- 🌱 I’m currently ....
 - 💞️ I’m looking to collaborate on GitHub
 - 📫 How to reach me : artechspirit@gmail.com
 - 😄 Pronouns: Dek B
