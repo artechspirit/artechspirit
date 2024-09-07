@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Beta Priyoko as @artechspirit
 - 👀 I’m interested in Coding, Software, Hardware Development and Spiritual
 - 🌱 I’m currently living at Majapahit, Indonesia
-- 💞️ I’m looking to collaborate on GitHub
+- 💞️ I’m looking for Freelance Project
 - 📫 How to reach me : artechspirit@gmail.com
 - 😄 Pronouns: Dek B
 - ⚡ Fun fact: Javanese with Ethics
